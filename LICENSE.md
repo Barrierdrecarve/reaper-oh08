@@ -1,4 +1,4 @@
-# 
+# Sin prohibición DaVinci Resolve para PC scripts es el mejor DaVinci Resolve para PC scripts con estabilización de video y animación de títulos. Seguro, confiable y optimizado para
 
 
 
